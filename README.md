@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **sagniksaha20013@gmail.com**
 
-- 📄 Know about my experiences [I am a fresher (college student)](I am a fresher (college student))
+- 📄 Know about my experiences [I am a fresher (college student)]
 
 - ⚡ Fun fact **Most people love me**
 
